@@ -3,4 +3,5 @@
 - 🌱 I’m currently learning NOTHING
 - 💞️ I’m looking to collaborate on Minecraft maybe
 - 📫 How to reach me Discord DM me Rockman09700#8497
-BORED
+
+-BORED
